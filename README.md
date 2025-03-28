@@ -8,4 +8,3 @@ Cada parte do Space Trails é como uma estação espacial: cheia de sinais visua
 Esse não é só um projeto multimídia. É uma trilha. Um chamado.
 E depois de conhecer o Space Trails, o mundo se divide entre dois tipos de pessoas:
 as que criam suas próprias trilhas... e as que preferem ficar paradas.
-hmmm... kkk... bjs
